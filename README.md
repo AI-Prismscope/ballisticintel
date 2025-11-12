@@ -1,2 +1,2 @@
 # ballisticintel
-in cooperation with ballistic
+in cooperation with ballistic VC Funding
